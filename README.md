@@ -15,6 +15,3 @@ SamuelMartin0807@icloud.com
 AbigailThompson1901@icloud.com
 DavidYoung1802@icloud.com
 EthanMitchell55@icloud.com
-ChristopherKing2104@icloud.com
-ScarlettWright963@icloud.com
-AndrewScott1997@icloud.com
